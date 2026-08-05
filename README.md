@@ -14,9 +14,9 @@
 
 <img width="840" height="50" alt="IMG_6906" src="https://github.com/user-attachments/assets/df10bfe3-8ca1-47d7-accd-633592c8295f" />
 
-Just what the title says prooobbabbly under construction. 
+Pixel art creds: @/decomposedmaw on tumblr! 
 
-This is for experimental readme themes <img width="10" height="10" alt="IMG_6695" src="https://github.com/user-attachments/assets/b532e06c-2da6-4b07-bd8a-b9d50bf7c143" />
+Cat sticker creds: @/stickerifffic on tumblr! 
 
 </details>
 
@@ -33,6 +33,10 @@ I'm uh gay and bi curious (+ demiboy) I'm a super cool guy so er... Yeah!!!
 Friends / close friends can call me: Kody, Kodiak, Angelic, Pitcher, and Sol
 
 Strangers can call me: Angelic, Kodiak, Pitcher, and Sol
+
+Just what the title says prooobbabbly under construction. 
+
+This is for experimental readme themes <img width="10" height="10" alt="IMG_6695" src="https://github.com/user-attachments/assets/b532e06c-2da6-4b07-bd8a-b9d50bf7c143" />
 
 </details>
 
@@ -59,3 +63,6 @@ I have high functioning Autism + ADHD -> (Both of these are medically diagnosed 
 <details align="right">
 
 <summary> ${\textsf{\color{#1f556a}﹕  dnis!  }}$   </summary>
+</details>
+
+<img width="840" height="77" alt="IMG_6907" src="https://github.com/user-attachments/assets/5f1d63bc-a7fb-4e93-a87f-753538d30baa" />
