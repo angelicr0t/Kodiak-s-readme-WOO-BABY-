@@ -30,6 +30,14 @@ This is for experimental readme themes <img width="10" height="10" alt="IMG_6695
 
 <summary> ${\textsf{\color{#319471}﹕  byi!  }}$   </summary>
 
+
+<br/>
+
+<div align="right">
+  <img width="60" height="56" alt="IMG_6914" src="https://github.com/user-attachments/assets/335b1912-0f4f-486e-a424-68f1d786e529" />
+
+I have high functioning Autism + ADHD -> (Both of these are medically diagnosed ^^) So It's a complete gamble if I'll be antisocial or the most social person you've either met LMAO Usually I'm somewhere in between, don't be afraid to send me a whisper!!! I am w2i 80%-90% of the time because I'm mostly offtab. I am very friendly most of the time! If you do copy me I will block you immediately :c 
+</details>
 </details>
 
 <details align="left">
