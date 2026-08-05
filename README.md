@@ -23,6 +23,12 @@ This is for experimental readme themes <img width="10" height="10" alt="IMG_6695
 <details align="left">
 
 <summary> ${\textsf{\color{#69ae6b}﹕  Info!  }}$   </summary>
+<img width="60" height="56" alt="IMG_6913" src="https://github.com/user-attachments/assets/a70c3af8-6f36-4eaf-a2be-efe9c7a7b4e1" />
+<br/>
+<div align="center">
+This is a pt (ponytown) account, not an actual coding based account. I use nonbinary and masc pronouns, nonbinary preferred!! 
+
+I'm uh gay and bi curious (+ demiboy) I'm a super cool guy so er... Yeah!!!
 
 </details>
 
