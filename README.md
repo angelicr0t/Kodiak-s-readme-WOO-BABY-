@@ -71,7 +71,7 @@ don't: spam kiss me if I don't know you, cover me if I don't know you
 <summary> ${\textsf{\color{#1f556a}﹕  dnis!  }}$   </summary>
 <br/>
 <div align="right">
-<img width="370" height="320" alt="IMG_6912" src="https://github.com/user-attachments/assets/7c0c06cd-c45c-47eb-bd42-1065ad0ccdd1" />
+<img width="60" height="56" alt="IMG_6912" src="https://github.com/user-attachments/assets/7c0c06cd-c45c-47eb-bd42-1065ad0ccdd1" />
 
 (My) Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, overly religious people, Melanie Martinez supporters/ppl who listen to her, people who play any of Qwel's games after the controversy (addition to this DNI if you're in the Dandy's World fandom y'all can be weird asf), and past blocked people!!! 
 </details>
