@@ -57,7 +57,12 @@ I have high functioning Autism + ADHD -> (Both of these are medically diagnosed 
 <details align="left">
 
 <summary> ${\textsf{\color{#2b8169}﹕  dos and don'ts!  }}$   </summary>
+<br>
+<div align="left">
+<img width="60" height="56" alt="IMG_6911" src="https://github.com/user-attachments/assets/74defb8e-1865-4710-bd69-a86702605664" />
 
+do: spam boop, spam nuzzle, hide behind me,  and talk to me! I swear I'm not as mean as I look gang!! 
+don't: spam kiss me if I don't know you, cover me if I don't know you 
 </details>
 
 <details align="right">
