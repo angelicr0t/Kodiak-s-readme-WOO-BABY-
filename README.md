@@ -62,12 +62,18 @@ I have high functioning Autism + ADHD -> (Both of these are medically diagnosed 
 <img width="60" height="56" alt="IMG_6911" src="https://github.com/user-attachments/assets/74defb8e-1865-4710-bd69-a86702605664" />
 
 do: spam boop, spam nuzzle, hide behind me,  and talk to me! I swear I'm not as mean as I look gang!! 
+
 don't: spam kiss me if I don't know you, cover me if I don't know you 
 </details>
 
 <details align="right">
 
 <summary> ${\textsf{\color{#1f556a}﹕  dnis!  }}$   </summary>
+<br/>
+<div align="right">
+<img width="370" height="320" alt="IMG_6912" src="https://github.com/user-attachments/assets/7c0c06cd-c45c-47eb-bd42-1065ad0ccdd1" />
+
+(My) Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, overly religious people, Melanie Martinez supporters/ppl who listen to her, people who play any of Qwel's games after the controversy (addition to this DNI if you're in the Dandy's World fandom y'all can be weird asf), and past blocked people!!! 
 </details>
 
 <img width="840" height="77" alt="IMG_6907" src="https://github.com/user-attachments/assets/5f1d63bc-a7fb-4e93-a87f-753538d30baa" />
