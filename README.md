@@ -30,9 +30,9 @@ This is a pt (ponytown) account, not an actual coding based account. I use nonbi
 
 I'm uh gay and bi curious (+ demiboy) I'm a super cool guy so er... Yeah!!!
 
-Friends / close friends can call me: Kody, Kodiak, Angelic, Pitcher, and Sol
+Friends / close friends can call me: Kody, Kodiak, Angelic, Pitcher, and Soluk
 
-Strangers can call me: Angelic, Kodiak, Pitcher, and Sol
+Strangers can call me: Angelic, Kodiak, Pitcher, and Soluk
 
 Just what the title says prooobbabbly under construction. 
 
